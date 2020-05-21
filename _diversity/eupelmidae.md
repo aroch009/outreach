@@ -43,3 +43,15 @@ Species of Eupelmidae have been used as biological control agents of agricultura
 * [_Eupelmus_ sp. ovipositing into wood boring host](https://www.youtube.com/watch?v=kiCZNAXLKoc)
 * [Eupelmidae under a microscope](https://www.youtube.com/watch?v=B8shVm30kKo)
 * [_Anastatus_ sp. ovipositing into true bug eggs](https://www.youtube.com/watch?v=Zx9Doypjv7M&feature=youtu.be)
+
+## Photo Credit
+
+* (A)
+* (B)
+* (C)
+* (D)
+* (E)
+* (F)
+* (G)
+* (H)
+* (I)
